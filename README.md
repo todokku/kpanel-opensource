@@ -1,6 +1,6 @@
 # kPanel OpenSource
 
-**Le vrai leak de kPanel, les autres copies distribués (ormi celle publié sur le discord de "LeSheitan17" ne sont pas réels**
+**Le vrai leak de kPanel, les autres copies distribués (ormi celle publié sur le discord de "LeSheitan17") ne sont pas réels**
 
 **TOUTE UTILISATION COMMERCIALE EST AUTORISÉE UNIQUEMENT SI L'AUTEUR (Moi) EST CRÉDITER !**
 
